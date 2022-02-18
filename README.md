@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Charles
+- 👀 I’m interested in C# and Python languages
+- 🌱 I’m currently learning both C# and python
+- 💞️ I’m looking to collaborate on any project 
+- I am a quick study and open to learn more
+- 📫 How to reach me charlypt247@gmail.com
+- Pls reach out. Thanks in anticipation
